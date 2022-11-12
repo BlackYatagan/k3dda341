@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @k3dda341
 - 👀 I’m interested in many things!
-- 🌱 I’m currently learning Cybersecurity \\{0.0}//
+- 🌱 I’m currently learning Cybersecurity \\{0.0}/
 - 💞️ I’m not looking for collaborations at the current time..
 - 📫 You can reach me via: -> email: k3dda341@protonmail.com
 
